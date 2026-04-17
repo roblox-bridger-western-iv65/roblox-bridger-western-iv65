@@ -1,4 +1,4 @@
-
+Experience roblox rivals like never before with roblox rivals elite Scripts: silent aim & teleport, the #1 Script. Includes silent aim and teleport
 
 
 ---
